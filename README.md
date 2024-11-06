@@ -1,9 +1,9 @@
 # HTLM_Reyes_Oscar_3w_1208
 practica html
 
-![image](https://github.com/user-attachments/assets/986a0fff-7687-4e28-a1fc-d98c4323a9fd)
+![image](https://github.com/user-attachments/assets/ee6e1ba5-5418-46ab-903e-ffec69e45810)
 
-![image](https://github.com/user-attachments/assets/52d4fc5a-8910-4a6d-81af-afd086aa86b7)
+![image](https://github.com/user-attachments/assets/221028e5-a5a9-49ea-ba4e-75b9dcdb08dd)
 
 
 ehh profe no se porque no sale la foto pero si la puse : )
